@@ -11,7 +11,7 @@
 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 -->
 
-# Best Free AI Tools List 2024: Comprehensive Directory & Expert Reviews | AiToolsTy - Your Ultimate Guide to Free AI Solutions
+# Best Free AI Tools List 2025: Comprehensive Directory & Expert Reviews | AiToolsTy - Your Ultimate Guide to Free AI Solutions
 
 AiToolsTy stands as your definitive destination for discovering and mastering free artificial intelligence tools, featuring an expertly curated directory that undergoes rigorous evaluation and continuous refinement. 
 
